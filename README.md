@@ -4,9 +4,7 @@
 
 ##### 
 
-##### *‘The Earth is not just our environment. We are the Earth and the Earth is us. We have always been One with the Earth.* 
-
-*Realizing this, we can see that the earth is truly alive. We are a living, breathing manifestation of this beautiful and generous planet. Knowing this, we can begin to transform our relationship to the Earth. We can begin to walk differently and to care for her differently.*
+ *‘The Earth is not just our environment. We are the Earth and the Earth is us. We have always been One with the Earth. Realizing this, we can see that the earth is truly alive. We are a living, breathing manifestation of this beautiful and generous planet. Knowing this, we can begin to transform our relationship to the Earth. We can begin to walk differently and to care for her differently.*
 
 *We will fall completely in love with the Earth. When we are in love with someone or something, there is no separation between ourselves and the person or thing we love. We do whatever we can for them and this brings us great joy and nourishment. That is the relationship each of us can have with the Earth.’*  
 Zen Buddhist monk Thich Nhat Hanh
