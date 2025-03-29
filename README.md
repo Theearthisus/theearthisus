@@ -2,7 +2,6 @@
 **‘The Earth is Us: Love letters to the earth’**  
 **call out for contributions to webzine**
 
-##### 
 
  *‘The Earth is not just our environment. We are the Earth and the Earth is us. We have always been One with the Earth. Realizing this, we can see that the earth is truly alive. We are a living, breathing manifestation of this beautiful and generous planet. Knowing this, we can begin to transform our relationship to the Earth. We can begin to walk differently and to care for her differently.*
 
